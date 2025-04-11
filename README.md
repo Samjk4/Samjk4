@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-HEllO EVERYONE,Welcome to Porfile🛀💨
+HEllO EVERYONE,Welcome to MY Porfile🛀💨
 
 <!--
 **Samjk4/Samjk4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
